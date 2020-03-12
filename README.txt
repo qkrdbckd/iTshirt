@@ -1,1 +1,1 @@
-slow study
+slow study fast study
